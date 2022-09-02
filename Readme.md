@@ -6,11 +6,9 @@
 
 
 
+<a href="https://sm.ms/image/bxUmj1VH7krzhRp" target="_blank"><img src="https://s2.loli.net/2022/09/02/bxUmj1VH7krzhRp.png" alt="image.png"></a>
 
 
-![image-20220902193315236](https://phobed.aowu.tech/i/2022/09/02/6311ea22ae099.png)
-
-![image-20220902193401827](https://phobed.aowu.tech/i/2022/09/02/6311ea3bb41d3.png)
 
 
 
